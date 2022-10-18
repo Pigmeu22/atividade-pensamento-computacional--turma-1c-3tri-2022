@@ -1,0 +1,1 @@
+# atividade-pensamento-computacional--turma-1c-3tri-2022
